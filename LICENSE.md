@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with premium NFT Trading Bot for opensea sniper bot | auto-sell & wash-trading-detection. Featuring auto-sell and wash-trading-detection, it's
 
 
 
